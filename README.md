@@ -1,1 +1,1 @@
-# MathType-
+# MathType-Cracked version
